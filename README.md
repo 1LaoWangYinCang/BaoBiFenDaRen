@@ -1,4 +1,4 @@
-# TiYuWeiQuiZhan
+# TiYuWeiQiuZhan
 
 TiYuWeiQuiZhan is a shopping mall for ball sports goods. It is committed to promoting professional, affordable and high-quality ball sports goods, so that people can effectively buy high cost performance ball sports goods in their daily life.
 
