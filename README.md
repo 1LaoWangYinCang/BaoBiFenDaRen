@@ -10,4 +10,4 @@ Our app also has the function of product collection, which allows you to collect
 
 With professional sports and fitness equipment, let you have a perfect body!
 
-If you have any questions, please contact us as follows :  2314278292@qq.com
+If you have any questions, please contact us as follows :  w1113096582@163.com
