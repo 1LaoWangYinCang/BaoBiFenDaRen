@@ -1,13 +1,13 @@
-# XiGuaQiMiZhuanJia
+# XiGuaJijingJi
 
-XiGuaQiMiZhuanJia is an app to buy fitness yoga supplies and ball sports equipment. We show professional and high-quality ball sports supplies and fitness yoga supplies, so that people can efficiently and high-quality purchase satisfactory and high-quality sports supplies in their daily life.
+XiGuaJijingJi is an app to buy esports style home accessories. We show cool and high-quality esports home accessories, so that people can efficiently buy satisfactory esports home accessories in their daily life.
 
-Our app has made a very detailed classification for these sports equipment, including fitness equipment, yoga supplies, basketball, tennis, table tennis, badminton, jerseys, rackets and other sports products. These complete categories of ball sports equipment and fitness yoga supplies can meet the user's selection and purchase.
+Our APP has classified these esports home accessories in great detail, including esports style fresco, esports poster, game wallpaper, esports style decoration manual, esports mouse pad and other esports home accessories. These complete categories of esports home accessories can meet users' selection and purchase.
 
-Our APP also introduces each product in detail, so that you can fully understand these products, find your favorite sports goods, and facilitate you to purchase and place orders.
+Our APP also introduces each product in detail, so that you can fully understand these products, find your favorite esports home accessories, so that you can purchase and place orders.
 
-Our app also has the function of product collection, which allows you to collect your favorite sports products into the collection list for your next browsing and placing orders. You can also share high-quality sporting goods with others.
+Our APP also has the function of product collection, which allows you to collect your favorite esports home accessories into the collection list, so that you can browse and place orders next time. At the same time, you can also share high quality esports home accessories with others.
 
-With professional sports and fitness equipment, let you have a perfect body!
+Super cool esports home accessories, esports fans worth having!
 
-If you have any questions, please contact us as follows :  w1113096582@163.com
+If you have any questions, please contact us as follows :Kelly836552@icloud.com
