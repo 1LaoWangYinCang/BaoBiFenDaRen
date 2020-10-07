@@ -1,6 +1,6 @@
-# BaoBiFenJiQianGuan
+# BaoBiFenDaRen
 
-BaoBiFenJiQianGuan is an app to buy water sports equipment, learn sports skills and record game scores. We show professional and high-quality water sports equipment, so that people can efficiently buy satisfactory and high-quality water sports equipment in their daily life.
+BaoBiFenDaRen is an app to buy water sports equipment, learn sports skills and record game scores. We show professional and high-quality water sports equipment, so that people can efficiently buy satisfactory and high-quality water sports equipment in their daily life.
 
 Our APP has classified these aquatic sports equipment in great detail, including sports products such as diving equipment, swimming equipment, surfing equipment, and water rafting equipment. These complete categories of aquatic sports equipment can satisfy users' selection and purchase.
 
